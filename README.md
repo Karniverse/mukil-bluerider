@@ -6,7 +6,7 @@
 
 twitter - twitter.com/KarMukil_Rider
 Insta - www.instagram.com/karmukil_alagar/
-discord - discord.link/karmukil
+discord - discord.io/karmukil
 Twitch - https://www.twitch.tv/karmukil
 
 <!---
