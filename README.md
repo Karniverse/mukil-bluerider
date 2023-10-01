@@ -4,18 +4,19 @@
 - 💞️ I’m looking to collaborate on ... Peace.
 - 📫 How to reach me ... 
 
-twitter - twitter.com/KarMukil_Twitch
+Twitter - twitter.com/KarMukil_Twitch
 - 
 
-Insta - www.instagram.com/karmukil_alagar/
+Instagram - www.instagram.com/karmukil_alagar/
 - 
 
-discord - https://discord.gg/muXwASsTfS
+Discord - https://discord.gg/muXwASsTfS
 - 
 
 Twitch - https://www.twitch.tv/karmukil
 - 
-
+All my links - https://linktr.ee/KarMukil
+- 
 <!---
 mukil-bluerider/mukil-bluerider is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
