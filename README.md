@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Peace.
 - 📫 How to reach me ... 
 
-Twitter - twitter.com/KarMukil_Twitch
+Twitter - https://twitter.com/KarMukil_Twitch
 - 
 
 Instagram - www.instagram.com/karmukil_alagar/
