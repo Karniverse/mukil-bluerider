@@ -4,9 +4,12 @@
 - 💞️ I’m looking to collaborate on ... Peace.
 - 📫 How to reach me ... 
 
-twitter - twitter.com/KarMukil_Rider
+twitter - twitter.com/KarMukil_Twitch
+
 Insta - www.instagram.com/karmukil_alagar/
-discord - discord.io/karmukil
+
+discord - https://discord.gg/muXwASsTfS
+
 Twitch - https://www.twitch.tv/karmukil
 
 <!---
